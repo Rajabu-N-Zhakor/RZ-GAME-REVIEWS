@@ -1,2 +1,2 @@
 # RZ-GAME-REVIEWS
-My name is Abdul Rajabu and my partner Zhakor young. We will be teklling you our opion all on the hottest games.
+My name is Abdul Rajabu and my partners name is Zhakor young. We will be sharinbg our opion on all the hottest games with you.
